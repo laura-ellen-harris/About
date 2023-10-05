@@ -28,4 +28,4 @@ Feel free to DM me on [LinkedIn](www.linkedin.com/in/laura-harris-06173964)!
 
 # 📜 Want to know more?
 
-Download my CV
+[Download my CV]([url](https://github.com/laura-ellen-harris/About/blob/main/Laura%20Harris%20-%20CV.pdf)https://github.com/laura-ellen-harris/About/blob/main/Laura%20Harris%20-%20CV.pdf)
